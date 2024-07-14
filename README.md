@@ -1,6 +1,6 @@
 ## 
 
-aspiring self-taught technical artist and game developer
+Aspiring self-taught technical artist and game developer.
 
 See the following for portfolio: https://padlet.com/sweetpotatoelove/portfolio-padlet-cicp6bqhnfroqlcb
 
