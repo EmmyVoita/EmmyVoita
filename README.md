@@ -1,8 +1,8 @@
 ## 
 
-self-taught technical in 
+aspiring self-taught technical artist and game developer
 
-See 
+See the following for portfolio: https://padlet.com/sweetpotatoelove/portfolio-padlet-cicp6bqhnfroqlcb
 
 
 
