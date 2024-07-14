@@ -1,4 +1,11 @@
-## Hi there 👋
+## 
+
+self-taught technical in 
+
+See 
+
+
+
 
 <!--
 **EmmyVoita/EmmyVoita** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
