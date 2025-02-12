@@ -3,7 +3,7 @@
 Aspiring self-taught technical artist and game developer.
 
 
-portfolio: https://padlet.com/sweetpotatoelove/portfolio-padlet-cicp6bqhnfroqlcb
+[portfolio](https://emmyvoita.github.io/)
 
 
 
